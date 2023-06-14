@@ -1,5 +1,5 @@
 # Confidentz
-![Confidentz](url_gambar)
+![L1](https://github.com/Confidentz-C23-PS334/.github/assets/47630429/b0220e41-314c-409a-965c-297e789c88f1)
 
 
 ## Title
